@@ -1,0 +1,2 @@
+# tempelin-com
+Tempelin.com  Apa itu Tempelin.com ? Tempelin.com adalah website jual beli online di Indonesia. Dengan logo kami " Mau pasang iklan gratis ? Tempelin saja ... "  Tempelin.com menjadi cara gratis mencari barang baru dan bekas. Dengan menempelkan iklan secara gratis disini maka iklan Anda akan dilihat oleh banyak orang setiap harinya 24 jam.Bertransaksi di tempelin.com, baik jual maupun beli tidak dikenakan biaya, semua disediakan gratis.Bergabunglah sekarang juga dan TEMPELIN iklan Anda disini.
